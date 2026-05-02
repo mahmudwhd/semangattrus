@@ -1,0 +1,2 @@
+# semangattrus
+semangat terus
